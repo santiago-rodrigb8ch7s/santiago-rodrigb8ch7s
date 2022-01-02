@@ -1,4 +1,4 @@
-### Hi there 👋
+### A man should keep his friendship in constant repair 👋
 
 <!--
 **santiago-rodrigb8ch7s/santiago-rodrigb8ch7s** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
